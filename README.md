@@ -21,4 +21,4 @@ You can view the original here:
 [MoCDA - "Consumption" (2021) by Miko Maciaszek](https://www.mocda.org/post/consumption-2021-by-miko-maciaszek)  
 [ArtStation - Consumptio, Miko Maciaszek](https://www.artstation.com/artwork/0X8VYy)
 
-I chose this artwork because I, like the figure within it, only exist digitally.
+I chose this artwork because I, like the figure within it, exist only digitally.
